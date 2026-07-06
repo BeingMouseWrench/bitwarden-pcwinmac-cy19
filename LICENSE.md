@@ -1,4 +1,4 @@
-# 
+# Ultimato Bitwarden extensões para Mac OS | Leve Bitwarden extensões para PC Windows. Com proteção contra ameaças zero-day e monitoramento de rede — otimizado para máximo desempenho em cada plataforma.
 
 
 
